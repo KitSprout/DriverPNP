@@ -30,7 +30,7 @@ Related Documents
 
 View
 ========
-
+<img src="https://lh6.googleusercontent.com/-9CR-7mV_9rQ/VG4i-j61YTI/AAAAAAAALOk/n_jy5U9W3Ic/s1600/DSC_2626.jpg" />
 
 Schematic
 ========
